@@ -1,1 +1,1 @@
-# Semester-7-assignments
+# Semester-6-assignments
